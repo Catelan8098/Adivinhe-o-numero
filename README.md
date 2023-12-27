@@ -1,1 +1,2 @@
-não copie por favor
+não copie por favor...
+ou copie sla
